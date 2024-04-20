@@ -1,1 +1,1 @@
-This is Divya passionate for techonology and innovation
+This is Divya passionate about innovative technology
